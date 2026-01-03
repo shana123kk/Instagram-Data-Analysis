@@ -137,7 +137,7 @@ This project is open source and available under the MIT License. See the LICENSE
 
 **Shana123k**
 - GitHub: [@shana123kk](https://github.com/shana123kk)
-- LinkedIn: [in/shana123kk](https://www.linkedin.com/in/shana123kk)
+- LinkedIn: [in/shanakk](https://www.linkedin.com/in/shana-kk-055662251/)
 
 ## Contact
 
